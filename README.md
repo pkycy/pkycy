@@ -1,3 +1,3 @@
-<p align="center">程序没有最优解，人生亦是如此！</p>
+<p align="center">在举目无亲的远方，才能够真诚地做自己</p>
 <p align="center">
 </p>
